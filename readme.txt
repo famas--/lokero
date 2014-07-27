@@ -1,2 +1,1 @@
-sdkjfghsadlkjghds
-sdfgsd
+Tutkinto harjoitus
